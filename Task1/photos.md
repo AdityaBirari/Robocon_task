@@ -1,0 +1,5 @@
+![image](https://github.com/AdityaBirari/Robocon_task/assets/145274749/b049afe4-43fb-486d-851d-7374ed45bb44)
+![image](https://github.com/AdityaBirari/Robocon_task/assets/145274749/6b58c5d6-ffb1-4773-b788-93e696094911)
+![image](https://github.com/AdityaBirari/Robocon_task/assets/145274749/95eed901-7bb9-490d-938f-783b30339952)
+![image](https://github.com/AdityaBirari/Robocon_task/assets/145274749/e19e2608-637e-4034-8e05-d9289aebfda7)
+![image](https://github.com/AdityaBirari/Robocon_task/assets/145274749/c4082be7-2785-46b3-8389-64fdb4aa686c)
